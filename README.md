@@ -1,2 +1,0 @@
-# voltixa.github.io
-Voltixa
